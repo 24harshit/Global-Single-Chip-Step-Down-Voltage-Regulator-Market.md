@@ -1,0 +1,1 @@
+# Global-Single-Chip-Step-Down-Voltage-Regulator-Market.md
